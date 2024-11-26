@@ -1,6 +1,6 @@
 # China Tour
 
-## Day 1-5: Sichuan Province (Including Chengdu)
+## Day 1-5: Sichuan Province (Jack's Hometown Province)
 - *Day 1: Chengdu*
   - *Chengdu Research Base of Giant Panda Breeding*: See the adorable giant pandas.
   - *Jinli Ancient Street*: Explore traditional Sichuan architecture and local snacks.
@@ -77,7 +77,7 @@
   - *Xixi National Wetland Park*: Discover the natural beauty and wildlife of the wetlands.
   - *Leifeng Pagoda*: Visit the historic pagoda with views of West Lake.
 
-## Day 18-20: Hong Kong (Including Foshan, Shenzhen, Macao)
+## Day 18-20: Hong Kong
 - *Day 18: Hong Kong*
   - *Victoria Peak*: Take the tram for a panoramic view of Hong Kong.
   - *Tsim Sha Tsui Promenade*: Enjoy the skyline view and visit the Avenue of Stars.
