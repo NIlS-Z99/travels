@@ -1,2 +1,2 @@
-# travels
-Draft Travel Plans for Countries I want to Visit
+# International Travels
+Draft Travel Plans for countries I want to visit.
