@@ -1,4 +1,4 @@
-# Japan Tour
+# Japan Tour (16 Days)
 
 ## Day 1-2: Wakkanai
 - *Cape Soya*: The northernmost point of Japan.
