@@ -1,4 +1,4 @@
-# China Tour
+# China Tour (23 Days)
 
 ## Day 1-5: Sichuan Province (Jack's Hometown Province)
 - *Day 1: Chengdu*
