@@ -1,4 +1,4 @@
-# Korea Tour
+# Korea Tour (16 Days)
 
 ## Day 1-4: Seoul
 - *Day 1: Seoul*
