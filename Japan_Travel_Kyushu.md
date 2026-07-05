@@ -88,7 +88,8 @@
 * **Morning:** Visit **Tochoji Temple** to stand before the Fukuoka Daibutsu (one of Japan’s largest wooden seated Buddhas) and wander through **Kushida Shrine** to see the massive festival floats on display.
 * **Afternoon:** Walk through the tranquil **Rakusuien Japanese Garden** to enjoy a bowl of whisked matcha green tea right next to the koi ponds.
 
-#### April 09 (Thu): The Ultimate Mega-Shopping Blast (stay @ The Onefive Villa Fukuoka until leave)
+#### April 09 (Thu): The Ultimate Mega-Shopping Blast 
+(stay @ The Onefive Villa Fukuoka until leave)
 
 * **All Day:** The dedicated retail marathon! Start at [Canal City Hakata](https://www.google.com/search?q=https://canalcity.co.jp/en) for high-end international boutiques and fountain shows. Move to the **Tenjin District** to conquer the massive **Tenjin Underground Shopping Mall (Tenchika)** and luxury department store basements for fashion, cosmetics, and souvenirs.
 * **Farewell Dinner:** Celebrate your final night with a luxurious table for **Mizutaki** (Fukuoka's rich, collagen-packed chicken hot pot).
