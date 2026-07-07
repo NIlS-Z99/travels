@@ -83,12 +83,21 @@
 #### April 07 (Tue): Shinkansen $\rightarrow$ Dazaifu Grand Shrine Afternoon
 
 * **Morning (09:30):** Take the Shinkansen from Nagasaki back to Hakata Station, Fukuoka (1.5 hours). Drop your bags at the hotel.
-* Visit **Tochoji Temple** to stand before the Fukuoka Daibutsu (one of Japan’s largest wooden seated Buddhas) and wander through **Kushida Shrine** to see the massive festival floats on display.
-* Walk through the tranquil **Rakusuien Japanese Garden** to enjoy a bowl of whisked matcha green tea right next to the koi ponds.
+* Travel to the [Sakurai Futamigaura](https://japantravel.de/japan-erleben/natur/sakurai-futamigaura-strand-in-itoshima-424/) for beautiful fotos and scenic food
+* Come back and explore the City Center:
+  - Visit **Tochoji Temple** to stand before the Fukuoka Daibutsu (one of Japan’s largest wooden seated Buddhas)
+  - Wander through **Kushida Shrine** to see the massive festival floats on display
+  - Walk through the tranquil **Rakusuien Japanese Garden** to enjoy a bowl of whisked matcha green tea right next to the koi ponds
+  - Go to the first Shops
 
 #### April 08 (Wed): Pre-Shopping Cultural Buffer
 
-* Take the short local line down to [Dazaifu Tenmangu Shrine](https://www.dazaifutenmangu.or.jp/en/). Stroll up the lively pedestrian approach street lined with traditional wooden storefronts, buy hot, freshly grilled *Umegae Mochi*, cross the vermilion arched bridges, and explore the ancient, sacred shrine complex together.
+* Take the short local line down to [Dazaifu Tenmangu Shrine](https://www.dazaifutenmangu.or.jp/en/). Stroll up the lively pedestrian approach street lined with traditional wooden storefronts, buy hot, freshly grilled *Umegae Mochi*, cross the vermilion-arched bridges, and explore the ancient, sacred shrine complex together.
+* Come back and explore the City Center:
+  - Visit **Tochoji Temple** to stand before the Fukuoka Daibutsu (one of Japan’s largest wooden seated Buddhas)
+  - Wander through **Kushida Shrine** to see the massive festival floats on display
+  - Walk through the tranquil **Rakusuien Japanese Garden** to enjoy a bowl of whisked matcha green tea right next to the koi ponds
+  - Go to the first Shops
 
 #### April 09 (Thu): The Ultimate Mega-Shopping Blast
 
