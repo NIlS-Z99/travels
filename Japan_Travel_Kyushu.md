@@ -18,54 +18,55 @@
 
 ---
 
-### Phase 2: Active Travel Days (Volcanoes, Samurai & Castle Blossoms)
+### Phase 2: Active Travel Days (Waterfalls & Volcanoes meet Samurai & Castle Blossoms)
 
-#### March 29 (Sun): Morning Travel $\rightarrow$ Kagoshima Food Culture
+#### March 29 (Sun): Kagoshima $\rightarrow$ Between Samurai Clans an active Vulcano and Black Pork with Sake
 
-* **Morning (09:00):** Board the Shinkansen south to Kagoshima (1.5 hours). Because the train is so fast, you are checked into your hotel before midday!
-* **Afternoon:** Spend your afternoon exploring the trendy waterfront or taking a historic walking tour of the Shiroyama park area.
-* **Dinner:** Try **Kurobuta** (Kagoshima Black Pork Shabu-Shabu) or flame-grilled local Satsuma chicken.
+* **Morning (09:00):** Board the Shinkansen south to Kamamoto (1/2 hour), drop off luggage at the hotel, and start the day trip to Kagoshima (1 hour). Because the train is so fast, you are checked into your hotel before midday!
+* **Lunch:** Try **Kurobuta** (Kagoshima Black Pork Shabu-Shabu) or flame-grilled local Satsuma chicken with local sake.
+* **Afternoon:** Explore the magnificent [Sengan-en Garden](https://www.senganen.jp/en/), taking in the grand 17th-century estate with its breathtaking views of the smoking volcano across the bay.
+* **Evening:** Take the Shinkansen north to Kamamoto, eat dinner, and sleep at the hotel.
 
-#### March 30 (Mon): Samurai Estate $\rightarrow$ Volcanic Onsen Escape
 
-* **Morning:** Explore the magnificent [Sengan-en Garden](https://www.senganen.jp/en/), taking in the grand 17th-century estate with its breathtaking views of the smoking volcano across the bay.
+#### March 30 (Mon): Kumamoto $\rightarrow$ Sakura Blossom Castle
 
-* **Afternoon:** Catch the 15-minute ferry to Sakurajima. Walk the rugged Nagisa Lava Trail, then sink into the iron-rich waters of the [Sakurajima Magma Onsen](https://www.google.com/search?q=https://www.seika-spc.co.jp/rainbow/onsen/) right by the water.
+* **All Day:** Spend your entire day immersed in cherry blossom pink at [Kumamoto Castle](https://www.google.com/search?q=https://kumamoto-guide.jp/en/castle/). This is the absolute peak window for *sakura*. Hundreds of trees frame the dark, towering stone walls. Stay past dusk to see the trees completely illuminated by floodlights.
 
-#### March 31 (Tue): Travel Day Activity: Kumamoto Historic Gardens
+#### March 31 (Tue): The Great Mount Aso Volcano Day Tour
 
-* **Morning (10:00):** Take the Shinkansen up to Kumamoto (45 minutes) and drop your bags at the hotel.
-* **Afternoon:** Head straight to [Suizen-ji Joju-en Garden](https://www.suizenji.or.jp/), a stunning 17th-century landscape garden that replicates the 53 stations of the historic Tokaido road in miniature.
-* **Dinner:** Try Kumamoto's local specialty, *Basashi* (horsemeat sashimi) or garlic-rich Kumamoto Ramen.
-
-#### April 01 (Wed): Full Day Castle Cherry Blossoms
-
-* **All Day:** Spend your entire day immersed in pink at [Kumamoto Castle](https://www.google.com/search?q=https://kumamoto-guide.jp/en/castle/). This is the absolute peak window for *sakura*. Hundreds of trees frame the dark, towering stone walls. Stay past dusk to see the trees completely illuminated by floodlights.
-
-#### April 02 (Thu): The Great Mount Aso Volcano Day Tour
-
-* **All Day:** Take a day-tour or rent a car from Kumamoto Station. Cruise along the panoramic **Milk Road** caldera rim, look out from [Daikanbo Lookout](https://kumamoto.guide/en/spots/detail/211), walk the volcanic grasslands of Kusasenri, and walk behind the roaring water curtain at **Nabegataki Falls**.
+**All Day:**
+* Rent a car from Kumamoto Station. Drive to [Kusasenri Observatory](https://wanderlog.com/place/details/476347/kusasenri-observatory) in Mount Aso. Stop at the [Kusasenrigahama](https://kumamoto.guide/de/spots/detail/210) lake and then continue to [Komezuka Observatory](https://kumamoto.guide/de/spots/detail/11968) to admire the volcanic grasslands. After this, continue further up north to watch over the beautiful landscape from the [Daikanbo Lookout](https://kumamoto.guide/en/spots/detail/211) and cruise along the panoramic **Milk Road** caldera rim to finish off the Mount Aso tour looking out from [Aso Skyline Observatory](https://wanderlog.com/place/details/4137125/aso-skyline-observatory).
+* Leaving Mount Aso towards the Kurokawa Onsen, the next stops are the two scenic waterfalls [Meoto Falls](https://explore-kumamoto.com/meoto-falls/) and [Unexplored Seven Falls](https://maps.app.goo.gl/FQSMBLWqydqN18La6).
+* Finally, rest in between the two waterfalls at the beautiful forest Onsen [Oyado Hanabou](https://maps.app.goo.gl/TbhLTjAMvTEd7KK96).
 * **Food:** Stop for lunch on the mountain to eat *Akaushi Beef* (Aso's tender, local Wagyu) over rice.
 
 ---
 
-### Phase 3: Deep Relaxation $\rightarrow$ Recharged History
+### Phase 3: The Grand Onsen Tour (Deep Relaxation) & Kitakyūshū 
 
-#### April 03 (Fri): Travel Day Activity: Cross-Kyushu Train & Onsen Dinner
+#### April 01 (Wed): Kurokawa Onsen
 
-* **Morning (09:30):** Board the scenic Trans-Kyushu Limited Express train from Kumamoto/Aso across the mountain ridges to the hot spring capital, **Beppu** (approx. 2.5 hours).
-* **Afternoon:** Arrive after lunch and check into a luxury traditional **Ryokan**. Spend your afternoon completely undisturbed, soaking together in a private family hot spring (*kashikiri*).
+#### April 02 (Thu): Welcome to Beppu (Onsen Dinner)
+
+* **Afternoon:** Arrive in Beppu & drop-off car. Check into a luxury traditional **Ryokan**. Spend your afternoon completely undisturbed, soaking together in a private family hot spring (*kashikiri*).
 * **Dinner:** Indulge in an incredible multi-course *Kaiseki* banquet served directly to you at your inn.
 
-#### April 04 (Sat): Geothermal Hells & Mud/Sand Baths
+#### April 03 (Fri): Geothermal Hells & Mud/Sand Baths
 
 * **Morning:** Do a quick tour of the striking "Hells of Beppu"—steaming, naturally colored volcanic pools like the bright cobalt-blue [Umi Jigoku](https://www.umijigoku.co.jp/).
-
 * **Afternoon:** Spend the afternoon experiencing Beppu's famous naturally heated beach sand baths or a therapeutic mineral mud soak.
 
-#### April 05 (Sun): Travel Day Activity: Dazzling Nagasaki Night Views
+#### April 04 (Sat): Kitakyūshū
 
-* **Midday (11:00):** Board the express train across the island to **Nagasaki** (approx. 3 hours). Look out the window at the beautiful coastal scenery of the Ariake Sea.
+* **Morning:** Transition to Kitakyūshū via Express Train and explore the Metropolotain.
+
+---
+
+### Phase 4: The Dark History of Japan 
+
+#### April 05 (Sun): Dazzling Nagasaki Night Views
+
+* **Midday (11:00):** Board the express train across the island to **Nagasaki** (approx. 2.75 hours). Look out the window at the beautiful coastal scenery of the Ariake Sea.
 * **Late Afternoon:** Arrive and check into your hotel. Grab a snack of *Kakuni Manju* (braised pork belly buns).
 * **Night:** Take the ropeway up **Mt. Inasa** to see one of Japan's most spectacular harbor night vistas—highly romantic.
 
